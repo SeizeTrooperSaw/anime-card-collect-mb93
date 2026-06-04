@@ -1,4 +1,4 @@
-#  
+#  the strongest battlegrounds top Scripts is the best the strongest battlegrounds Script, featuring instant win and teleport. Safe and powerful for all
 
 
 
